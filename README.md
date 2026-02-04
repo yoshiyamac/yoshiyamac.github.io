@@ -1,0 +1,1 @@
+# yoshiyamac.github.io
